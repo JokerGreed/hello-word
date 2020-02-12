@@ -1,5 +1,11 @@
 # hello-word
 
-Hi, Humans!
+你好
 
-That's good! I love here.
+这里是JokerGreed的小空间
+
+奋斗
+
+前进
+
+努力
